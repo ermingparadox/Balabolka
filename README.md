@@ -222,4 +222,4 @@ Balabolka is available as a **full free version** with all features and updates 
 Don't miss out on enhancing your reading experience! Download Balabolka today and enjoy the convenience of listening to your texts.
 
 ---
-**Last updated:** 2026-09-18 14:09:04 UTC
+**Last updated:** 2026-09-18 18:06:21 UTC
